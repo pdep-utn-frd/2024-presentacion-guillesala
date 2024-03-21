@@ -7,7 +7,7 @@
 
 ##### **cosas sobre mí: suelo caminar rápido y me gusta mucho entrenar , leer, etc jajaja todo muy aburrido.**
 
-![Guille](https://files.fm/u/pqjq6c37w8)
+![images.jpeg](https://github.com/pdep-utn-frd/2024-presentacion-guillesala/assets/80929000/37eee94a-33c3-4e16-b94a-0f97a134bc42)
 
 - Escriban presentación sobre ustedes.
 - Suban la presentación a Git.
