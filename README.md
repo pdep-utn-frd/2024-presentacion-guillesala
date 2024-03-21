@@ -7,7 +7,7 @@
 
 ##### **cosas sobre mí: suelo caminar rápido y me gusta mucho entrenar , leer, etc jajaja todo muy aburrido.**
 
-!https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTiA_yhrO4lXr6YzUz20f2tJKoyeBp-7QTBDrTomlyPNg&s
+![https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTiA_yhrO4lXr6YzUz20f2tJKoyeBp-7QTBDrTomlyPNg&s]
 
 
 
