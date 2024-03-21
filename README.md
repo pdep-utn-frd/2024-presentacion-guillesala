@@ -1,9 +1,13 @@
 # presentacion
 
 
-### ***Guillermo Salaberry Agustín*** 
+### **Guillermo Salaberry Agustín** 
 
-##### ***alumno de 2do en ingeniería en sistemas de  información***
+##### **alumno de 2do en ingeniería en sistemas de  información**
+
+##### ** cosas sobre mí: suelo caminar rápido y me gusta mucho entrenar , leer, etc jajaja todo muy aburrido.**
+
+
 
 
 
