@@ -1,4 +1,12 @@
-# presentacion-
+# presentacion
+
+
+### ***Guillermo Salaberry Agustín*** 
+
+##### ***alumno de 2do en ingeniería en sistemas de  información***
+
+
+
 
 - Escriban presentación sobre ustedes.
 - Suban la presentación a Git.
